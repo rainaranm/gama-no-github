@@ -1,0 +1,2 @@
+Está sendo bem interessante! os alunos são bem diversificados seja nas experiências profissionais, quanto pessoais, as aulas são bem diretas e rápidas e gosto disso de ter que ir atrás para saber mais.
+Além disso, as plataformas são bem organizadas e o pessoal da gama é bem legal, espero que eu consiga ir até o fim!
